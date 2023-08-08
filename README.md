@@ -1,6 +1,8 @@
 ### nya
 please dont take any of these seriously 
 
+![](https://img1.picmix.com/output/stamp/normal/2/9/7/2/2492792_b7280.gif)
+
 ![](https://media.discordapp.net/attachments/1054472748472225894/1137913694416810034/DRAWME1691370132667.png)
 
 ![](https://media.discordapp.net/attachments/1117337135331147798/1122118432641531915/tumblr_inline_rc1tzcl9Yk1vefsve_500.gif) ![](https://media.discordapp.net/attachments/1117337135331147798/1122118537423634492/sailor_neptune.gif) ![](https://media.discordapp.net/attachments/1117337135331147798/1122118538421882981/utena.gif) ![](https://media.discordapp.net/attachments/1117337135331147798/1122118549566144552/uP8nSvW.gif) ![](https://media.discordapp.net/attachments/1117337135331147798/1122118549201231912/eva.gif)
