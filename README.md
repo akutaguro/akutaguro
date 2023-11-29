@@ -1,4 +1,4 @@
-### ‎ ‎    ︵‿ in his despair, alone, he confronts his fate ‿︵
+### ‎in his despair, alone, he confronts his fate
 
 ![](https://media.discordapp.net/attachments/1117337135331147798/1179216084860154026/IMG_2914_3.png?ex=6578f98f&is=6566848f&hm=0ededa58adb576037668469dd51e2e16b696ea3d915165ab4d8802df162a3992&=&format=webp&quality=lossless)![](https://media.discordapp.net/attachments/1117337135331147798/1179216245443285033/IMG_2918_3.png?ex=6578f9b5&is=656684b5&hm=70e2d4a5a5a59a977dc65b4c9b056b2dfc15c4bee5594b11cebd40d568f778c8&=&format=webp&quality=lossless)
 
