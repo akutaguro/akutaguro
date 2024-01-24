@@ -1,5 +1,6 @@
 [art credits](https://www.tumbig.com/blog/wilwillsdb)
-![](![image](https://github.com/akutaguro/akutaguro/assets/123282551/a2d1858d-c00b-4f6e-8bb6-4952d22a6bab)
+
+![](https://media.discordapp.net/attachments/900173594150203454/1199836620954808330/blur_edges_13.png?ex=65c3fdee&is=65b188ee&hm=de7d1976c22b3e7ab7897d1c3e90d331da427cabdb8339c9906a917bd32d0b24&=&format=webp&quality=lossless)
 
 ![](https://kopawz.neocities.org/stamphoard/stamps/pepsidog.png) ![](https://64.media.tumblr.com/8261f486f06f86f64019764066382eca/330a847f340059f7-e8/s100x200/f1d721aadb9d5169321d1f0d9809716ef9deb37d.png) ![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/93f30916-a8f0-45fd-a18d-7123d4d3a240/d77mmkz-5f0071ea-4866-4e7d-b34f-5893b612c0d5.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzkzZjMwOTE2LWE4ZjAtNDVmZC1hMThkLTcxMjNkNGQzYTI0MFwvZDc3bW1rei01ZjAwNzFlYS00ODY2LTRlN2QtYjM0Zi01ODkzYjYxMmMwZDUucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.Rc6OTyfm2NyVYqBbYj7ECU7mQlrpsKU-0X-uZqiW3MI) ![](https://i.imgur.com/pOReGXf.png) ![](https://external-media.spacehey.net/media/sYKSI6VsktxUzd-mHTQBPid3wt-otEefiutDi89b3Etg=/https://64.media.tumblr.com/a941d1d076b713d9d205813634ecc237/e02cf7239140df0e-26/s100x200/6e66b6f1ff597a1f3337179b9d064598400be091.png)
 
