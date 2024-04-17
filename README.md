@@ -1,1 +1,1 @@
-![](https://i.pinimg.com/564x/4b/24/cf/4b24cf8c6d71f69004500c7cbe48c7f3.jpg)
+![](https://graphic.neocities.org/tumblr_niqtzbIzj61sefquto1_250.png)
