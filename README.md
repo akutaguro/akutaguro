@@ -1,1 +1,1 @@
-![](https://graphic.neocities.org/tumblr_niqtzbIzj61sefquto1_250.png)
+![](https://media.discordapp.net/attachments/1117337135331147798/1230608512787415071/IMG_4372.jpg?ex=6633f07d&is=66217b7d&hm=d67bbe036aa575a6b23c7c76ff6db46cf245d8faf21a99070c04228b7f32d9ab&=&format=webp)
