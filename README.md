@@ -1,3 +1,3 @@
-![](https://img.wattpad.com/240f5ef011e967ab05d2dedfb1ea4f45bec08970/68747470733a2f2f73332e616d617a6f6e6177732e636f6d2f776174747061642d6d656469612d736572766963652f53746f7279496d6167652f6d46367075364a4e7551684568673d3d2d3739343535303533392e3135636439316538343539616137353938323639343638343834322e676966)
+![](https://static.wikia.nocookie.net/puyo-fanon/images/c/cd/Lemres_attacked.png/revision/latest/scale-to-width-down/250?cb=20221013050742)
 
-[retrospring](https://retrospring.net/@saihate) ![](https://caterpie.crd.co/assets/images/gallery09/6b83c761.gif?v=f7b7a140) say hai
+ [RETROSPRING](https://retrospring.net/@saihate) Say hai.
